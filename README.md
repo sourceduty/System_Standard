@@ -12,7 +12,7 @@ Implementing system standards is crucial for organizations that seek to maintain
 
 #
 
-![Standardized](https://github.com/user-attachments/assets/b4921fb1-a7fd-4b12-b6b0-5d2d031e32d3)
+![Time](https://github.com/user-attachments/assets/4670c0af-781a-42b8-9e98-19417cfbe9ae)
 
 #
 ### Related Links
